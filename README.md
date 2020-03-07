@@ -1,5 +1,5 @@
 # pole_chudec
 
-#by klucly :D
-#gooood luck!
-#my discord: 
+by klucly :D
+my discord: klucly#0586
+gooood luck!
